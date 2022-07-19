@@ -28,4 +28,4 @@
 >
 > -А зачем тогда вы*бывались?
 
-<center> ![meme](jk1.jpg) </center>
+![meme](jk2.jpg)
